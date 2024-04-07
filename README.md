@@ -8,3 +8,5 @@ An SEO expert walked into a bar, pub, liquor store, brewery, alcohol, beer, whis
 
 Why did the two functions stop calling each other? Because they had constant arguments.
 
+Que le dijo una mujer a otra mujer?
+Te voy a matar hija de puta, por qué te metes con mi marido!
